@@ -1,0 +1,1 @@
+# gempa_latihan_2
